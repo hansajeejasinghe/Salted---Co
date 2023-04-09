@@ -1,1 +1,1 @@
-# Salted---Co
+# Salted & Co.
